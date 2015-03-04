@@ -14,7 +14,7 @@ March 4, 2015
 
 ## Split Infinitives:
 
-1. Patients should try to if possible avoid going up and down stairs themselves.
+1. If possible, patients should try to avoid going up and down stairs themselves.
 2. The candidate decided to formally launch her campaign.
 3. We decided actually to enforce the law.
 
