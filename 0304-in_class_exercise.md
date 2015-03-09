@@ -24,5 +24,5 @@ March 4, 2015
 2. After women complete seminary training, their access to the pulpit has often been denied.
 3. Joe's recruiter enthusiastically shook his hand after Joe decided to join the navy.
 4. A skeleton caught my attention when I entered the doctor's office.
-5. Some fireworks were set off a day early to please the children.
+5. Some people set off fireworks a day early to please the children.
 6. Sixteen year-old Martha got her application accepted by UCLA.
